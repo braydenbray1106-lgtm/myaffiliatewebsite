@@ -20,7 +20,7 @@ Whether you’re commuting, working out, or relaxing at home, these headphones d
 
 ## Affiliate Link
 
-[👉 Click here to see it on Amazon](https://amzn.to/3X0CAxD)
+[👉 Click here to see it on Amazon](https://www.amazon.com?&linkCode=ll2&tag=braydenkeltne-20&linkId=839a99a4cbe92e1acc5dff2e1fbbd3b2&language=en_US&ref_=as_li_ss_tl)
 
 ## Final Thoughts
 
