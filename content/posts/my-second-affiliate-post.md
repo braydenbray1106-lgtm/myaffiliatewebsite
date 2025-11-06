@@ -20,7 +20,7 @@ Whether you’re commuting, working out, or relaxing at home, these headphones d
 
 ## Affiliate Link
 
-[Buy the Wireless Headphones Here](YOUR_AFFILIATE_LINK)
+[👉 Click here to see it on Amazon](https://amzn.to/3X0CAxD)
 
 ## Final Thoughts
 
