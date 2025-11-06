@@ -32,11 +32,17 @@ These headphones aren’t just about great sound — they’re about **freedom**
 
 ---
 
-## 🔗 Where to Buy
+### 🔗 Where to Buy
 
-👉 [**Check the current price on Amazon**](https://www.amazon.com?&linkCode=ll2&tag=braydenkeltne-20&linkId=839a99a4cbe92e1acc5dff2e1fbbd3b2&language=en_US&ref_=as_li_ss_tl)  
+[![Wireless Headphones](https://m.media-amazon.com/images/I/61kA7ZzvZVL._AC_SL1500_.jpg)](https://www.amazon.com?&linkCode=ll2&tag=braydenkeltne-20&linkId=839a99a4cbe92e1acc5dff2e1fbbd3b2&language=en_US&ref_=as_li_ss_tl)
+
+**Product:** Wireless Headphones 2025  
+**Price:** Check the current price on Amazon  
+[Buy Now](https://www.amazon.com?&linkCode=ll2&tag=braydenkeltne-20&linkId=839a99a4cbe92e1acc5dff2e1fbbd3b2&language=en_US&ref_=as_li_ss_tl)
+
 
 *(Affiliate disclosure: As an Amazon Associate, I earn from qualifying purchases.)*
+
 
 ---
 
